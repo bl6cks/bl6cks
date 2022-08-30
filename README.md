@@ -1,0 +1,4 @@
+- Hi, I’m jevon better known as @bl6cks.
+- My interest is computer programming as I am currently studying at a university to achieve a bachelor's degree. 
+- I am currently in my third year and therefore am starting out a little bit late when it comes to making my own projects.
+- join me in my journey to become one.
